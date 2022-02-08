@@ -1,2 +1,2 @@
 # work
-All my Free Lancing works will be posted here
+All my Freelancing works will be posted here
